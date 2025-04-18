@@ -34,6 +34,8 @@ Music and Sound for Picture
 
 Exporting
 
+🌍😍👉 https://tinyurl.com/3wvzvwh8?ef47
+
 Logic Pro X free download
 
 Logic Pro Windows
